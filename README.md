@@ -5,6 +5,9 @@
 - medisniperscout and scout x scout connoisseur 
 - bi/gay transmasc little freak.. a little fem sometimes if i feel like it
 - go to my strawpage for more about me info and stuff + to leave me shit in my askbox or draw me stuff
+- fandoms i enjoy: tf2, overwatch, lethal company
+- I LOOOVE RED VOX AND NSP!!!!
+- please int/leave me asks and stuff i love lookin' at dat stuff
 
 <!---
 ianian69/ianian69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
