@@ -9,6 +9,7 @@
 - I LOOOVE RED VOX AND NSP!!!!
 - please int/leave me asks and stuff i love lookin' at dat stuff
 - hiding sniperspy/bloody suit and medispy/gentle surgery fans proudly
+- (i actually do not really like any spy ship sorry spy enjoyers)
 
 ![gif](https://cdn.discordapp.com/attachments/857675663309668356/1299446510827737088/12132811_cd5b7.gif?ex=67212fde&is=671fde5e&hm=a7e9ef61c6b181b6afba4a8bd189f0787cf70e22fc7314b9d270f8763a2fb144&)
 <!---
