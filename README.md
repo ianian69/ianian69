@@ -12,7 +12,7 @@
 - (i actually do not really like any spy ship sorry gang)
 - i also hide freely. if i hid ur friend or smt i probably have a reason
 
-![gif]((https://cdn.discordapp.com/attachments/857675663309668356/1299446510827737088/12132811_cd5b7.gif))
+![gif](https://cdn.discordapp.com/attachments/857675663309668356/1299446510827737088/12132811_cd5b7.gif)
 <!---
 ianian69/ianian69 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
